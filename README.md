@@ -1,1 +1,2 @@
 # majri
+god is great 
